@@ -1,4 +1,4 @@
-## Olá! Bem-vindo ao meu GitHub 🖐️  Podes ver alguns dos meus projetos ao clicar em repositórios ☝️
+## Olá! Bem-vindo ao meu GitHub 🖐️ 
 Podes ver o meu Linkedin ao clicar no botao a baixo 👇
 
 
